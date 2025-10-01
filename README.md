@@ -2,7 +2,7 @@
 - 👀 I’m interested in UI\UX Designing and Cloud Engineering
 - 🌱 Currently doing MCA
 - 💞️ I’m looking to collaborate on Designing and cloud based system works 
-- 📫 Reach me @visionofsurya1005@gmail.com
+- 📫 Reach me @surya2know@gmail.com
 - 😄 Pronouns: bla bla blaaaaaa
 - ⚡ Fun fact: This is a media student coming into MNC. That's LIFE HAHAHAHAHAHA...........
 
